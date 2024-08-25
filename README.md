@@ -1,4 +1,3 @@
-# **Juee Ashtaputre**
 
 **Master of Computer Science | Software Engineer | Cloud Computing Enthusiast**
 
